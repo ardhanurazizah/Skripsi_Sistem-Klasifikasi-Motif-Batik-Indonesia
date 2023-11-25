@@ -1,0 +1,1 @@
+# Skripsi_Sistem-Klasifikasi-Motif-Batik-Indonesia
